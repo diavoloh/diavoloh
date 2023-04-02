@@ -13,6 +13,6 @@ If you base your entire personality off drama/making other's miserable.
 
 TT/TD or any other variant claimants.
 
-`If you PDA Trish Una, Risotto Nero, Cioccolata, & Illumi Zoldyck.` 
+`I gatekeep Trish Una [JJBA], Don't talk to me if you think you love her more than me.`
 
 Mental illness/disorder `fakers` (Psychosis, DID, etc.)
