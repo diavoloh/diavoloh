@@ -1,16 +1,13 @@
-### Hi there 👋
+PT INFO ~ *Do NOT Interact* 
 
-<!--
-**diavoloh/diavoloh** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+`Ponies, Kins, Lovers, etc. of Diavolo [JJBA]` 
 
-Here are some ideas to get you started:
+If you base your entire personality off drama/making other's miserable.
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+`Anyone under 16`. Idle chat is fine but I prefer befriending people closer in age.
+
+TT/TD or any other variant claimants.
+
+`If you PDA Trish Una, Risotto Nero, Cioccolata, & Illumi Zoldyck.` 
+
+Mental illness/disorder `fakers` (Psychosis, DID, etc.)
